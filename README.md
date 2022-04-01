@@ -46,7 +46,7 @@
 
 
 
-
+<!-- 
 <br>
 <p align="center">
 <div align=center>
@@ -57,8 +57,8 @@
 </p>
 
 <br>
-
- <hr>
+ -->
+<!--  <hr> -->
 
 
 
