@@ -1,1 +1,1 @@
-![wallpapersden com_naruto-pain-minimal_1920x1080](https://user-images.githubusercontent.com/102672154/197462918-bfc010d3-9319-4cf7-82f3-393483afe897.jpg)
+![26a6912dab74f2df9694aefc97e06dbf](https://user-images.githubusercontent.com/102672154/225283160-33af379b-4dc4-4e4d-9685-913d490a77d0.jpg)
